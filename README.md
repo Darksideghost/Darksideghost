@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Darksideghost
+- 👋 Hi, I’m @Thwariq Anwar
 - 👀 I’m interested in Gaming and Coding.
 - 🌱 I’m currently learning MCA
 - 🌱 Green hat hacker
